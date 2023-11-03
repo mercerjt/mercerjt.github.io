@@ -5,7 +5,7 @@ permalink: /wishlist
 ---
 
 # Wishlist
-I used to use my Amazon wishlist (still located here) as my universal spot for all things. Unfortunately at some point in 2023, Amazon started blocking users from adding non-Amazon.com things to their wishlist, probably because it encouraged you to shop *not* on Amazon. As a result, I needed a new spot to host it!
+I used to use my Amazon wishlist [(still located here)](https://www.amazon.com/hz/wishlist/ls/1557LK19HNV8Y) as my universal spot for all things. Unfortunately at some point in 2023, Amazon started blocking users from adding non-Amazon.com things to their wishlist, probably because it encouraged you to shop *not* on Amazon. As a result, I needed a new spot to host it!
 
 ## Board Games
 This is my latest & greatest & most expensive hobby. Harry Potter: Hogwarts Battle (a cooperative, deck-building game) got me really into this kind of hobby in 2021. Now, I'm huge into any kind of highly-rated board game, **especially co-operative games** since those are ones I can get Jane (and maybe you) to play too! Here's some I don't have that I've got my eye on:
