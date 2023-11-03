@@ -1,3 +1,9 @@
+---
+layout: page
+title: “Wishlist”
+permalink: /wishlist
+---
+
 # Wishlist
 I used to use my Amazon wishlist (still located here) as my universal spot for all things. Unfortunately at some point in 2023, Amazon started blocking users from adding non-Amazon.com things to their wishlist, probably because it encouraged you to shop *not* on Amazon. As a result, I needed a new spot to host it!
 
