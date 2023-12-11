@@ -46,6 +46,7 @@ I've been a lifelong LEGO builder, and I have no plans on stopping anytime soon 
 - [Harry Potter: Hogwarts Moment: Charms Class (76385)](https://www.amazon.com/dp/B08HVZVWZT/?coliid=I1IV40K3NMF4YV&colid=1557LK19HNV8Y&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [Harry Potter: Hogwarts Moment: Transfiguration Class (76382)](https://www.amazon.com/dp/B08HW1WGJF/?coliid=I1D7RBTHR2C2IC&colid=1557LK19HNV8Y&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [Ideas: International Space Station (21321)](https://www.amazon.com/dp/B083JWZNW7/?coliid=I3WEFE3MN0QER&colid=1557LK19HNV8Y&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
+- [Typewriter (21327)](https://www.lego.com/en-us/product/typewriter-21327)
 - Any LEGO Art or world wonders sets
 
 ## Other Ideas
