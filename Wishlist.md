@@ -11,9 +11,7 @@ I used to use my Amazon wishlist [(still located here)](https://www.amazon.com/h
 This is my latest & greatest & most expensive hobby. Harry Potter: Hogwarts Battle (a cooperative, deck-building game) got me really into this kind of hobby in 2021. Now, I'm huge into any kind of highly-rated board game, **especially co-operative games** since those are ones I can get Jane (and maybe you) to play too! Here's some I don't have that I've got my eye on:
 - [Ticket to Ride Legacy: Legends of the West](https://a.co/d/1mUObXH)
 - [Dice Throne Adventures](https://shop.dicethrone.com/products/dice-throne-adventures)
-- [Codenames: Duet](https://www.amazon.com/Codenames-Duet-Player-Word-Deduction/dp/B072J234ZF)
 - [Too Many Bones](https://chiptheorygames.com/store/?store-page=Too-Many-Bones-p80199360)
-- [Sleeping Gods](https://www.amazon.com/Red-Raven-Games-Sleeping-Gods/dp/B084GWHLGK)
 - [Atlantis Rising](https://www.elfcreekgames.com/products/atlantis-rising)
 - [The Mind](https://www.amazon.com/Pandasaurus-Games-201809PAN-Mind-Card/dp/B07C4F3KLF?th=1)
 - [This War of Mine](https://www.amazon.com/dp/B071ZTQVYV/?coliid=IMD3ITYCDMLU1&colid=1557LK19HNV8Y&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
@@ -23,7 +21,7 @@ This is my latest & greatest & most expensive hobby. Harry Potter: Hogwarts Batt
 - [The Captain is Dead: Dangerous Planet](https://www.amazon.com/dp/B07NNTWKQL/?coliid=I765KC98O2WDO&colid=1557LK19HNV8Y&psc=0&ref_=list_c_wl_lv_ov_lig_dp_it)
 
 
-## Video Games
+## Video Games and electronic accessories
 Video games have been my go-to destresser/relaxation tool since I was introduced to Pokémon Red and the Game Boy Pocket in 1998. Today, I still keep up with a few specific series (including Pokémon, Assassin's Creed, the Legend of Zelda, and others), but I also generally enjoy two main genres:  online co-operative games and single player open-world RPG games. I definitely prefer to own a **digital** rather than physical copy of a game Here's some things in the video game & related accessories I've got my eye on:
 - [Mario Party Superstars for Nintendo Switch](https://www.amazon.com/dp/B097PZCGMT/?coliid=I143YLK40OB28V&colid=1557LK19HNV8Y&psc=0&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [Kirby and the Forgotten Land for Nintendo Switch](https://www.amazon.com/dp/B09RMMBZBR/?coliid=I1Q1YHTDRK2XBV&colid=1557LK19HNV8Y&psc=0&ref_=list_c_wl_lv_ov_lig_dp_it)
@@ -44,6 +42,7 @@ I always appreciate any new books that you personally recommend or enjoy. Otherw
 I usually prefer a Kindle or EPUB book version of the book, but I don't mind the occasional physical book if that's what's available. Here's some that I currently have on my backlog to get & read:
 - [It's All Too Much by Peter Walsh](https://www.amazon.com/dp/B000N2HCP6/?coliid=I2TIZT57VZ47Z7&colid=1557LK19HNV8Y&psc=0&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [A Memory Called Empire by Arkady Martine](https://www.amazon.com/dp/B07C7BCB88/?coliid=I2QZ4HB0IIATHV&colid=1557LK19HNV8Y&psc=0&ref_=list_c_wl_lv_ov_lig_dp_it)
+- [Kindle (Amazon) gift card](https://www.amazon.com/gift-cards/b?ie=UTF8&node=2238192011)
 
 ## LEGO
 I've been a lifelong LEGO builder, and I have no plans on stopping anytime soon (especially now that I've got Daniel into them!). I of course appreciate the larger, more complex sets. Otherwise, I generally collect/love to build sets from the Harry Potter, Star Wars, Architecture/world wonders, and LEGO City collections. I do have a policy that I *don't build any Harry Potter sets until I can build them with Daniel (as part of a tradition/idea from Jane)*. Here's a few on my wishlist:
