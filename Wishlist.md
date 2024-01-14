@@ -5,7 +5,6 @@ I used to use my Amazon wishlist (still located here) as my universal spot for a
 This is my latest & greatest & most expensive hobby. Harry Potter: Hogwarts Battle (a cooperative, deck-building game) got me really into this kind of hobby in 2021. Now, I'm huge into any kind of highly-rated board game, **especially co-operative games** since those are ones I can get Jane (and maybe you) to play too! Here's some I don't have that I've got my eye on:
 - [Dice Throne Adventures](https://shop.dicethrone.com/products/dice-throne-adventures)
 - [Too Many Bones](https://chiptheorygames.com/store/?store-page=Too-Many-Bones-p80199360)
-- [Sleeping Gods](https://www.amazon.com/Red-Raven-Games-Sleeping-Gods/dp/B084GWHLGK)
 - [Atlantis Rising](https://www.elfcreekgames.com/products/atlantis-rising)
 - [The Mind](https://www.amazon.com/Pandasaurus-Games-201809PAN-Mind-Card/dp/B07C4F3KLF?th=1)
 - [This War of Mine](https://www.amazon.com/dp/B071ZTQVYV/?coliid=IMD3ITYCDMLU1&colid=1557LK19HNV8Y&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
@@ -15,11 +14,14 @@ This is my latest & greatest & most expensive hobby. Harry Potter: Hogwarts Batt
 - [The Captain is Dead: Dangerous Planet](https://www.amazon.com/dp/B07NNTWKQL/?coliid=I765KC98O2WDO&colid=1557LK19HNV8Y&psc=0&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [Daybreak](https://www.amazon.com/dp/B0C79QBRMJ)
 - [The Lord of the Rings: The Card Game Revised Core Set](https://store.asmodee.com/products/lotr-lcg-revised-core-set)
-
+- [My Island](https://store.thamesandkosmos.com/products/my-island)
+- [John Company: Second Edition](https://wehrlegig.com/products/john-company-second-edition)
+- [Earthborne Rangers Core Set](https://www.teamcovenant.com/games/earthborne-rangers)
+- [The Betrayer's War Expansion for Descent](https://www.fantasyflightgames.com/en/products/descent-legends-of-the-dark/products/betrayers-war-expansion/)
 
 ## Video Games
 Video games have been my go-to destresser/relaxation tool since I was introduced to Pokémon Red and the Game Boy Pocket in 1998. Today, I still keep up with a few specific series (including Pokémon, Assassin's Creed, the Legend of Zelda, and others), but I also generally enjoy two main genres:  online co-operative games and single player open-world RPG games. I definitely prefer to own a **digital** rather than physical copy of a game Here's some things in the video game & related accessories I've got my eye on:
-- [Mary Party Superstars for Nintendo Switch](https://www.amazon.com/dp/B097PZCGMT/?coliid=I143YLK40OB28V&colid=1557LK19HNV8Y&psc=0&ref_=list_c_wl_lv_ov_lig_dp_it)
+- [Mario Party Superstars for Nintendo Switch](https://www.amazon.com/dp/B097PZCGMT/?coliid=I143YLK40OB28V&colid=1557LK19HNV8Y&psc=0&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [Kirby and the Forgotten Land for Nintendo Switch](https://www.amazon.com/dp/B09RMMBZBR/?coliid=I1Q1YHTDRK2XBV&colid=1557LK19HNV8Y&psc=0&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [The Legend of Zelda: Skyward Sword HD for Nintendo Switch](https://www.amazon.com/dp/B08X5Z7KYR/?coliid=I2KO9PXMJOTGYQ&colid=1557LK19HNV8Y&psc=0&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [Kirby Star Allies for Nintendo Switch](https://www.amazon.com/dp/B07B3NQJY9/?coliid=I2TKGJ084E5QOO&colid=1557LK19HNV8Y&psc=0&ref_=list_c_wl_lv_ov_lig_dp_it)
@@ -30,7 +32,6 @@ Video games have been my go-to destresser/relaxation tool since I was introduced
 - [NYXI Hyperion Light Wireless Joy-pad for Switch OLED](https://nyxigame.com/products/nyxi-hyperion-milk-style-meteor-light-wireless-joy-pad-for-switch-switch-oled)
 - [Triangle Strategy for Nintendo Switch](https://www.nintendo.com/us/store/products/triangle-strategy-switch/)
 - [Backbone One for iPhone (USB-C)](https://playbackbone.com/products/backbone-one-usb-c/)
-
 
 ## Books
 I always appreciate any new books that you personally recommend or enjoy. Otherwise, I usually find myself reading fiction in the sci-fi or fantasy genres - and usually ones that are part of a series rather than one-offs. I try to make an effort to add new Hugo/Nebula award winner books to my "To Read" list as well. In the non-fiction space, I prefer reading current affairs and policy advocacy or solution-advocacy books (e.g. delving into a public policy problem, the data behind different parts of the problems or attempted solutions, and what solutions the author advocates for & why).
