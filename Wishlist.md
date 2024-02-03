@@ -12,13 +12,12 @@ This is my latest & greatest & most expensive hobby. Harry Potter: Hogwarts Batt
 - [Mage Knight: Ultimate Edition](https://www.amazon.com/dp/B07BSM4SKL/?coliid=I3EJUFUG8BSWA3&colid=1557LK19HNV8Y&ref_=list_c_wl_lv_ov_lig_dp_it&th=1)
 - [The Captain is Dead](https://www.alderac.com/the-captain-is-dead/)
 - [The Captain is Dead: Dangerous Planet](https://www.amazon.com/dp/B07NNTWKQL/?coliid=I765KC98O2WDO&colid=1557LK19HNV8Y&psc=0&ref_=list_c_wl_lv_ov_lig_dp_it)
-- [Daybreak](https://www.amazon.com/dp/B0C79QBRMJ)
 - [The Lord of the Rings: The Card Game Revised Core Set](https://store.asmodee.com/products/lotr-lcg-revised-core-set)
 
 
 ## Video Games and electronic accessories
 Video games have been my go-to destresser/relaxation tool since I was introduced to Pokémon Red and the Game Boy Pocket in 1998. Today, I still keep up with a few specific series (including Pokémon, Assassin's Creed, the Legend of Zelda, and others), but I also generally enjoy two main genres:  online co-operative games and single player open-world RPG games. I definitely prefer to own a **digital** rather than physical copy of a game Here's some things in the video game & related accessories I've got my eye on:
-- [Mary Party Superstars for Nintendo Switch](https://www.amazon.com/dp/B097PZCGMT/?coliid=I143YLK40OB28V&colid=1557LK19HNV8Y&psc=0&ref_=list_c_wl_lv_ov_lig_dp_it)
+- [Mario Party Superstars for Nintendo Switch](https://www.amazon.com/dp/B097PZCGMT/?coliid=I143YLK40OB28V&colid=1557LK19HNV8Y&psc=0&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [Kirby and the Forgotten Land for Nintendo Switch](https://www.amazon.com/dp/B09RMMBZBR/?coliid=I1Q1YHTDRK2XBV&colid=1557LK19HNV8Y&psc=0&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [The Legend of Zelda: Skyward Sword HD for Nintendo Switch](https://www.amazon.com/dp/B08X5Z7KYR/?coliid=I2KO9PXMJOTGYQ&colid=1557LK19HNV8Y&psc=0&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [Kirby Star Allies for Nintendo Switch](https://www.amazon.com/dp/B07B3NQJY9/?coliid=I2TKGJ084E5QOO&colid=1557LK19HNV8Y&psc=0&ref_=list_c_wl_lv_ov_lig_dp_it)
