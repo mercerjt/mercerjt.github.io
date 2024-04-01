@@ -13,8 +13,11 @@ Daniel LOVES playing with his LEGO Duplo sets right now. His favorites are his L
 -[10965 Bath Time Fun Floating Animal Train](https://www.lego.com/en-us/product/bath-time-fun-floating-animal-train-10965)
 -[10994 3in1 Family House](https://www.lego.com/en-us/product/3in1-family-house-10994)
 
-## Board Books
-Daniel loves to read and loves to read to us. He does best with board books since he can turn the pages easier by himself and is willing to sit and read to himself or bring it over to us. 
+## Books
+Daniel loves to read and loves to read to us. He does best with board books since he can turn the pages easier by himself and is willing to sit and read to himself or bring it over to us.
+
+## Puzzles
+Daniel is HUGE into puzzles at the moment. Keep them age-appropriate in terms of size though! (Under 50 pieces please!)
 
 ## Clothes
 We're currently planning for toddler size 5/6 stuff for Fall/Winter 2024
