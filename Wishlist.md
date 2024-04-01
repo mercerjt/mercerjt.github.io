@@ -17,8 +17,7 @@ This is my latest & greatest & most expensive hobby. Harry Potter: Hogwarts Batt
 - [John Company: Second Edition](https://wehrlegig.com/products/john-company-second-edition)
 - [The Betrayer's War Expansion for Descent](https://www.fantasyflightgames.com/en/products/descent-legends-of-the-dark/products/betrayers-war-expansion/)
 
-
-## Video Games and electronic accessories
+## Video Games
 Video games have been my go-to destresser/relaxation tool since I was introduced to Pokémon Red and the Game Boy Pocket in 1998. Today, I still keep up with a few specific series (including Pokémon, Assassin's Creed, the Legend of Zelda, and others), but I also generally enjoy two main genres:  online co-operative games and single player open-world RPG games. I definitely prefer to own a **digital** rather than physical copy of a game Here's some things in the video game & related accessories I've got my eye on:
 - Nintendo eShop gift cards in order to get:
     - [Mario Party Superstars for Nintendo Switch](https://www.amazon.com/dp/B097PZCGMT/?coliid=I143YLK40OB28V&colid=1557LK19HNV8Y&psc=0&ref_=list_c_wl_lv_ov_lig_dp_it)
@@ -44,7 +43,6 @@ I always appreciate any new books that you personally recommend or enjoy. Otherw
 I usually prefer a Kindle or EPUB book version of the book, but I don't mind the occasional physical book if that's what's available. Here's some that I currently have on my backlog to get & read:
 - [It's All Too Much by Peter Walsh](https://www.amazon.com/dp/B000N2HCP6/?coliid=I2TIZT57VZ47Z7&colid=1557LK19HNV8Y&psc=0&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [A Memory Called Empire by Arkady Martine](https://www.amazon.com/dp/B07C7BCB88/?coliid=I2QZ4HB0IIATHV&colid=1557LK19HNV8Y&psc=0&ref_=list_c_wl_lv_ov_lig_dp_it)
-- [Kindle (Amazon) gift card](https://www.amazon.com/gift-cards/b?ie=UTF8&node=2238192011)
 - [Rules for Radicals by Saul Alinsky](https://www.amazon.com/Rules-Radicals-Pragmatic-Primer-Realistic-ebook/dp/B003T0G9GM/ref=tmm_kin_swatch_0?_encoding=UTF8&qid=&sr=)
 
 ## LEGO
