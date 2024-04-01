@@ -48,7 +48,7 @@ I usually prefer a Kindle or EPUB book version of the book, but I don't mind the
 ## LEGO
 I've been a lifelong LEGO builder, and I have no plans on stopping anytime soon (especially now that I've got Daniel into them!). I of course appreciate the larger, more complex sets. Otherwise, I generally collect/love to build sets from the Harry Potter, Star Wars, Architecture/world wonders, and LEGO City collections. I do have a policy that I *don't build any Harry Potter sets until I can build them with Daniel (as part of a tradition/idea from Jane*. Here's a few on my wishlist:
 - [Harry Potter: Hogwarts Castle and Grounds (76419)](https://www.amazon.com/dp/B0BXQ6NRRN/?coliid=I3IGEE747O5LS4&colid=1557LK19HNV8Y&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
-- [Harry Potter: Hogwarts Moment: Herbology Class (76384)] (https://www.amazon.com/dp/B09Q19LYLY/?coliid=I3JJ726679XJM6&colid=1557LK19HNV8Y&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
+- [Harry Potter: Hogwarts Moment Herbology Class (76384)](https://www.amazon.com/dp/B09Q19LYLY/?coliid=I3JJ726679XJM6&colid=1557LK19HNV8Y&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [Harry Potter: Hogwarts Moment: Charms Class (76385)](https://www.amazon.com/dp/B08HVZVWZT/?coliid=I1IV40K3NMF4YV&colid=1557LK19HNV8Y&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [Harry Potter: Hogwarts Moment: Transfiguration Class (76382)](https://www.amazon.com/dp/B08HW1WGJF/?coliid=I1D7RBTHR2C2IC&colid=1557LK19HNV8Y&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [Ideas: International Space Station (21321)](https://www.amazon.com/dp/B083JWZNW7/?coliid=I3WEFE3MN0QER&colid=1557LK19HNV8Y&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
