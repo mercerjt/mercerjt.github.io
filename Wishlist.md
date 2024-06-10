@@ -16,6 +16,7 @@ This is my latest & greatest & most expensive hobby. Harry Potter: Hogwarts Batt
 - [My Island](https://store.thamesandkosmos.com/products/my-island)
 - [John Company: Second Edition](https://wehrlegig.com/products/john-company-second-edition)
 - [The Betrayer's War Expansion for Descent](https://www.fantasyflightgames.com/en/products/descent-legends-of-the-dark/products/betrayers-war-expansion/)
+- [Wyrmspan](https://www.amazon.com/Stonemaier-Games-Cavernous-Sanctuary-Beautiful/dp/B0CJXNW71N/?tag=polygon05-20)
 
 ## Video Games
 Video games have been my go-to destresser/relaxation tool since I was introduced to Pokémon Red and the Game Boy Pocket in 1998. Today, I still keep up with a few specific series (including Pokémon, Assassin's Creed, the Legend of Zelda, and others), but I also generally enjoy two main genres:  online co-operative games and single player open-world RPG games. I definitely prefer to own a **digital** rather than physical copy of a game Here's some things in the video game & related accessories I've got my eye on:
@@ -32,7 +33,6 @@ Video games have been my go-to destresser/relaxation tool since I was introduced
     - [Elden Ring: SOTE Edition](https://www.playstation.com/en-us/games/elden-ring/)
 - [Analogue Pocket](https://www.analogue.co/pocket)
 - [Playstation VR2](https://www.amazon.com/dp/B0C1QJ6VHY/?coliid=I3DJQHLXSSG0R1&colid=1557LK19HNV8Y&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
-- [The Legend of Zelda: Tears of the Kingdom Complete Official Guide](https://www.amazon.com/dp/1913330001/?coliid=I1O8ZS941TEFUQ&colid=1557LK19HNV8Y&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [Everdell iPad App](https://apps.apple.com/us/app/everdell/id1580626436)
 - [Playstation DualSense Edge Wireless Controller](https://www.amazon.com/dp/B0BSYFB99D/?coliid=I2TSHNT5GZLKPS&colid=1557LK19HNV8Y&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [NYXI Hyperion Light Wireless Joy-pad for Switch OLED](https://nyxigame.com/products/nyxi-hyperion-milk-style-meteor-light-wireless-joy-pad-for-switch-switch-oled)
@@ -50,7 +50,6 @@ I've been a lifelong LEGO builder, and I have no plans on stopping anytime soon 
 - [Harry Potter: Hogwarts Castle and Grounds (76419)](https://www.amazon.com/dp/B0BXQ6NRRN/?coliid=I3IGEE747O5LS4&colid=1557LK19HNV8Y&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [Harry Potter: Hogwarts Moment Herbology Class (76384)](https://www.amazon.com/dp/B09Q19LYLY/?coliid=I3JJ726679XJM6&colid=1557LK19HNV8Y&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [Harry Potter: Hogwarts Moment: Charms Class (76385)](https://www.amazon.com/dp/B08HVZVWZT/?coliid=I1IV40K3NMF4YV&colid=1557LK19HNV8Y&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
-- [Harry Potter: Hogwarts Moment: Transfiguration Class (76382)](https://www.amazon.com/dp/B08HW1WGJF/?coliid=I1D7RBTHR2C2IC&colid=1557LK19HNV8Y&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [Ideas: International Space Station (21321)](https://www.amazon.com/dp/B083JWZNW7/?coliid=I3WEFE3MN0QER&colid=1557LK19HNV8Y&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [Typewriter (21327)](https://www.lego.com/en-us/product/typewriter-21327)
 - [Main Street (31141)](https://www.lego.com/en-us/product/main-street-31141)
