@@ -3,15 +3,15 @@ These are things that we've had our eye on and save for our own reference of "th
 
 ## LEGO Duplo
 Daniel LOVES playing with his LEGO Duplo sets right now. His favorites are his LEGO Duplo train sets and anything with vehicles (especially vehicles that have some kind of "push-and-go" inertia effect). Here's some we know he doesn't own:
--[10874 Steam Train](https://www.lego.com/en-us/product/steam-train-10874)
--[10872 Train Bridge and Tracks](https://www.lego.com/en-us/product/train-bridge-and-tracks-10872)
--[10882 Train Tracks](https://www.lego.com/en-us/product/train-tracks-10882)
--[45025 Coding Express](https://www.lego.com/en-us/product/coding-express-45025)
--[10987 Recycling Truck](https://www.lego.com/en-us/product/recycling-truck-10987)
--[10990 Construction Site](https://www.lego.com/en-us/product/construction-site-10990)
--[10959 Police Station & Helicopter](https://www.lego.com/en-us/product/police-station-helicopter-10959)
--[10965 Bath Time Fun Floating Animal Train](https://www.lego.com/en-us/product/bath-time-fun-floating-animal-train-10965)
--[10994 3in1 Family House](https://www.lego.com/en-us/product/3in1-family-house-10994)
+- [10874 Steam Train](https://www.lego.com/en-us/product/steam-train-10874)
+- [10872 Train Bridge and Tracks](https://www.lego.com/en-us/product/train-bridge-and-tracks-10872)
+- [10882 Train Tracks](https://www.lego.com/en-us/product/train-tracks-10882)
+- [45025 Coding Express](https://www.lego.com/en-us/product/coding-express-45025)
+- [10987 Recycling Truck](https://www.lego.com/en-us/product/recycling-truck-10987)
+- [10990 Construction Site](https://www.lego.com/en-us/product/construction-site-10990)
+- [10959 Police Station & Helicopter](https://www.lego.com/en-us/product/police-station-helicopter-10959)
+- [10965 Bath Time Fun Floating Animal Train](https://www.lego.com/en-us/product/bath-time-fun-floating-animal-train-10965)
+- [10994 3in1 Family House](https://www.lego.com/en-us/product/3in1-family-house-10994)
 
 ## Books
 Daniel loves to read and loves to read to us. He does best with board books since he can turn the pages easier by himself and is willing to sit and read to himself or bring it over to us.
