@@ -72,7 +72,6 @@ I've been a lifelong LEGO builder, and I have no plans on stopping anytime soon 
 - Meal delivery services (used to really enjoy Blue Apron since I didn't have to plan what to shop/cook for the week)
 
 ### Other
-- [Tom Bihn Cynic 30 Backpack (any color **EXCEPT** Taiga)](https://www.tombihn.com/products/synik-30)
 - [Baronfig Starter Kit (any non-bright colors, e.g. no pink, bright yellow, neon green)](https://baronfig.com/products/starter-kit?variant=40077999407187)
 - [ZSA Moonlander Keyboard (Black, Printed, Cherry MX Silent Red switches)](https://www.zsa.io/moonlander/buy)
 - [Withings Body Scan](https://www.withings.com/us/en/body-scan)
