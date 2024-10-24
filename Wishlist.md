@@ -80,3 +80,6 @@ I've been a lifelong LEGO builder, and I have no plans on stopping anytime soon 
 - [Logitech Astro A50 X](https://www.logitechg.com/pl-pl/products/gaming-audio/a50-x-astro-wireless-headset.939-002128.html?utm_medium=email&utm_campaign=ecom_GLBL_GARogueOneEmail_NON_GL-GL&utm_source=acsemail&bxid=b0f2c860-027c-44af-a673-3ea83d8acea6&deliveryName=DM306421)
 - [TwelveSouth HighRise Pro for Apple Studio Display](https://www.amazon.com/Twelve-South-MacBooks-Ergonomic-Height-Adjustable/dp/B0C91LSCDL?th=1)
 - [Draw Em All (Master Size)](https://ccayco.storenvy.com/products/18420937-draw-em-all-art-print)
+- [Pokemon Johto Rainbow Puzzle ($20)](https://www.pokemoncenter.com/product/710E11936/johto-rainbow-puzzle-1-000-pieces)
+- [Withings BPM Connect](https://www.withings.com/us/en/bpm-connect/shop)
+- [Withings Body Scan](https://www.withings.com/us/en/body-scan)
