@@ -42,7 +42,7 @@ Video games have been my go-to destresser/relaxation tool since I was introduced
 I always appreciate any new books that you personally recommend or enjoy. Otherwise, I usually find myself reading fiction in the sci-fi or fantasy genres - and usually ones that are part of a series rather than one-offs. I try to make an effort to add new Hugo/Nebula award winner books to my "To Read" list as well. In the non-fiction space, I prefer reading current affairs and policy advocacy or solution-advocacy books (e.g. delving into a public policy problem, the data behind different parts of the problems or attempted solutions, and what solutions the author advocates for & why).
 I usually prefer a Kindle or EPUB book version of the book, but I don't mind the occasional physical book if that's what's available. Here's some that I currently have on my backlog to get & read:
 - [It's All Too Much by Peter Walsh](https://www.amazon.com/dp/B000N2HCP6/?coliid=I2TIZT57VZ47Z7&colid=1557LK19HNV8Y&psc=0&ref_=list_c_wl_lv_ov_lig_dp_it)
-- [A Memory Called Empire by Arkady Martine](https://www.amazon.com/dp/B07C7BCB88/?coliid=I2QZ4HB0IIATHV&colid=1557LK19HNV8Y&psc=0&ref_=list_c_wl_lv_ov_lig_dp_it)
+- [My Pokémon Baking Book](https://www.pokemoncenter.com/product/707E12105/my-pokemon-baking-book/?subid=82593449)
 - [Rules for Radicals by Saul Alinsky](https://www.amazon.com/Rules-Radicals-Pragmatic-Primer-Realistic-ebook/dp/B003T0G9GM/ref=tmm_kin_swatch_0?_encoding=UTF8&qid=&sr=)
 
 ## LEGO
