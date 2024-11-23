@@ -5,7 +5,6 @@ I used to use my Amazon wishlist as my universal spot for all things. Unfortunat
 This is my latest & greatest & most expensive hobby. Harry Potter: Hogwarts Battle (a cooperative, deck-building game) got me really into this kind of hobby in 2021. Now, I'm huge into any kind of highly-rated board game, **especially co-operative games** since those are ones I can get Jane (and maybe you) to play too! Here's some I don't have that I've got my eye on:
 - [Dice Throne Adventures](https://shop.dicethrone.com/products/dice-throne-adventures)
 - [Too Many Bones](https://chiptheorygames.com/store/?store-page=Too-Many-Bones-p80199360)
-- [Atlantis Rising](https://www.elfcreekgames.com/products/atlantis-rising)
 - [The Mind](https://www.amazon.com/Pandasaurus-Games-201809PAN-Mind-Card/dp/B07C4F3KLF?th=1)
 - [This War of Mine](https://www.amazon.com/dp/B071ZTQVYV/?coliid=IMD3ITYCDMLU1&colid=1557LK19HNV8Y&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [Tapestry](https://www.amazon.com/dp/B07XDD71LQ/?coliid=I1Y12A9GCLDTSD&colid=1557LK19HNV8Y&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
@@ -74,7 +73,6 @@ I've been a lifelong LEGO builder, and I have no plans on stopping anytime soon 
 ### Other
 - [Baronfig Starter Kit (any non-bright colors, e.g. no pink, bright yellow, neon green)](https://baronfig.com/products/starter-kit?variant=40077999407187)
 - [ZSA Moonlander Keyboard (Black, Printed, Cherry MX Silent Red switches)](https://www.zsa.io/moonlander/buy)
-- [Withings Body Scan](https://www.withings.com/us/en/body-scan)
 - [BaseLynx 2.0 Pro Kit](https://www.apple.com/shop/product/HQ6C2LL/A/scosche-baselynx-20-pro-kit?fnode=e88c24603fd031ade8f75796abca5e0b53dc937eda228efc5223a88fc57a3785cbf134da2efbaa0fc65b5a25beec5e8849125656f39277b371978a5257750218d58cdbf14ae1caf75c86029a243eab2b9349522965aaf5777fcedb31b618b27e)
 - [TwelveSouth MagicBridge Extended (in Black)](https://www.twelvesouth.com/products/magicbridge)
 - [Logitech Astro A50 X](https://www.logitechg.com/pl-pl/products/gaming-audio/a50-x-astro-wireless-headset.939-002128.html?utm_medium=email&utm_campaign=ecom_GLBL_GARogueOneEmail_NON_GL-GL&utm_source=acsemail&bxid=b0f2c860-027c-44af-a673-3ea83d8acea6&deliveryName=DM306421)
