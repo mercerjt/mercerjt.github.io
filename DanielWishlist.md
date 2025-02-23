@@ -8,9 +8,7 @@ Daniel LOVES playing with his LEGO Duplo sets right now, and he's right on the b
 - [10965 Bath Time Fun Floating Animal Train](https://www.lego.com/en-us/product/bath-time-fun-floating-animal-train-10965)
 - [10994 3in1 Family House](https://www.lego.com/en-us/product/3in1-family-house-10994)
 - [10874 Steam Train](https://www.lego.com/en-us/product/steam-train-10874)
-- [10872 Train Bridge and Tracks](https://www.lego.com/en-us/product/train-bridge-and-tracks-10872)
 - [10882 Train Tracks](https://www.lego.com/en-us/product/train-tracks-10882)
-- [45025 Coding Express](https://www.lego.com/en-us/product/coding-express-45025)
 
 ## Books
 Daniel loves to read and loves to read to us. Currently, anything to do with construction vehicles, Paw Patrol, or Bluey are his favorites.
@@ -19,7 +17,7 @@ Daniel loves to read and loves to read to us. Currently, anything to do with con
 Daniel is HUGE into puzzles at the moment. Keep them age-appropriate in terms of size though! (Under 50 pieces please!)
 
 ## Clothes
-We're currently planning for toddler size 5/6 stuff for Winter/Spring 2024
+We're currently planning for toddler size 5/6 stuff for 2025
 
 ## KiwiCo sets
 - [Wind Play Lab ($50)](https://www.kiwico.com/us/store/dp/wind-play-lab/5991)
