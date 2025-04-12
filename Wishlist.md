@@ -22,6 +22,7 @@ This is my latest & greatest & most expensive hobby. Harry Potter: Hogwarts Batt
 - [Decrypto ($25)](https://www.amazon.com/Decrypto-Deduction-Adults-Players-Minutes/dp/B07BB4ND6J?psc=1&pd_rd_w=r3yYU&content-id=amzn1.sym.55c0153f-1fb7-42ff-8241-d1c0f3732289&pf_rd_p=55c0153f-1fb7-42ff-8241-d1c0f3732289&pf_rd_r=4QKYMVGFEK5PCSBRM4ZD&pd_rd_wg=o2XWs&pd_rd_r=77a140cb-fc95-4503-bd68-160b22314be6&ref_=sspa_dk_detail_1&sp_csd=d2lkZ2V0TmFtZT1zcF9kZXRhaWxfdGhlbWF0aWM=)
 - [Forgotten Waters ($60)](https://www.plaidhatgames.com/product/forgotten-waters/)
 - [Fateforge: Chronicles of Kaan ($89)](https://www.mighty-boards.com/12/49/products/Fateforge-Chronicles-of-Kaan)
+- [Mistborn ($45)](https://www.amazon.com/Mistborn-Deckbuilding-Game-Metal-Burning-Cooperative/dp/B0DK3ZZFVM/ref=pd_rhf_dp_s_bmx_gp_ua59emen_d_sccl_2_1/130-3452090-0397348?pd_rd_w=PCo0v&content-id=amzn1.sym.7f343e56-d0be-4b24-aec4-6ef6c6f88c49&pf_rd_p=7f343e56-d0be-4b24-aec4-6ef6c6f88c49&pf_rd_r=SNQDWPPNH0EP37414PY9&pd_rd_wg=KHDu2&pd_rd_r=5d758865-6666-4594-be12-3c1977ff8453&pd_rd_i=B0DK3ZZFVM&psc=1)
 - Board Game Organizers
 	- [Mysterium ($35)](https://laserox.net/products/mysterium-organizer)
 	- [Legends of Andor ($48)](https://laserox.net/products/legends-of-andor-organizer)
@@ -34,6 +35,7 @@ This is my latest & greatest & most expensive hobby. Harry Potter: Hogwarts Batt
 	- [Descent ($46)](https://laserox.net/products/descent-organizer)
 	- [Aeon's End Legacy of Gravehold ($44)](https://laserox.net/products/gravehold-organizer)
 	- [Aeon's End ($41)](https://laserox.net/products/aeons-end-organizer)
+	- [Transon Storage Tubes x8 ($29 for 2)](https://www.amazon.com/dp/B091JZ7B1S?th=1)
 
 
 ## Video Games
@@ -50,7 +52,7 @@ Video games have been my go-to destresser/relaxation tool since I was introduced
 - Playstion Store gift cards in order to get:
 	- [Grounded ($40)](https://www.playstation.com/en-us/games/grounded/)
 	- [Assassin's Creed Shadows (Digital Deluxe Edition) ($90)](https://www.playstation.com/en-us/games/assassins-creed-shadows/?et_rid=&et_cid=250116-ACSHADOW-GL-3RD-B-FLX&Linkid=250116-ACSHADOW-GL-3RD-B-FLX&emcid=em-3r-518643)
-    - [Marvel's Speider-Man 2 Digital Deluxe Edition ($80)](https://www.playstation.com/en-us/games/marvels-spider-man-2/)
+    - [Marvel's Spider-Man 2 Digital Deluxe Edition ($80)](https://www.playstation.com/en-us/games/marvels-spider-man-2/)
     - [Immortals Fenyx Rising Gold Edition PS4 & PS5 ($60)](https://www.playstation.com/en-us/games/immortals-fenyx-rising/)
     - [Elden Ring SOTE Edition ($80)](https://www.playstation.com/en-us/games/elden-ring/)
     - [Warhammer 40,000: Space Marine 2 ($70)](https://store.playstation.com/en-us/product/UP4133-PPSA04452_00-SPACEMARINESII00)
@@ -60,7 +62,6 @@ Video games have been my go-to destresser/relaxation tool since I was introduced
     - [Animal Well ($25)](https://store.playstation.com/en-us/concept/10004542)
     - [Metaphor: ReFantazio ($70)](https://store.playstation.com/en-us/product/UP0177-PPSA25425_00-METAPHORNATRIAL1)
     - [AstroBot (Digital Deluxe Edition) ($70)](https://www.playstation.com/en-us/games/astro-bot/)
-    - [PS5 Pro ($700)](https://direct.playstation.com/en-us/buy-consoles/playstation5-pro-console)
     - [Lego Horizon Adventures ($70)](https://store.playstation.com/en-us/product/EP9000-PPSA14632_00-LEGOHORIZONDELUX)
     - [Final Fantasy XVI Complete Edition ($70)](https://store.playstation.com/en-us/product/UP0082-PPSA10664_00-SEIA0000000000CE)
     - [Star Wars Jedi: Survivor for PS5 ($70)](https://store.playstation.com/en-us/product/UP0006-PPSA07783_00-APPLEJACKGAME000?cartAction=add&skuId=UP0006-PPSA07783_00-APPLEJACKGAME000-U001&upSellService=NONE&smcid=pdc%3Aus-en%3Aweb-pdc-home%3Abuttonblock-browse-the-deals)
@@ -87,6 +88,8 @@ Video games have been my go-to destresser/relaxation tool since I was introduced
 I always appreciate any new books that you personally recommend or enjoy. Otherwise, I usually find myself reading fiction in the sci-fi or fantasy genres - and usually ones that are part of a series rather than one-offs. I try to make an effort to add new Hugo/Nebula award winner books to my "To Read" list as well. In the non-fiction space, I prefer reading current affairs and policy advocacy or solution-advocacy books (e.g. delving into a public policy problem, the data behind different parts of the problems or attempted solutions, and what solutions the author advocates for & why).
 I usually prefer a Kindle or EPUB book version of the book, but I don't mind the occasional physical book if that's what's available. Here's some that I currently have on my backlog to get & read:
 - [My Pokémon Baking Book ($28)](https://www.pokemoncenter.com/product/707E12105/my-pokemon-baking-book/?subid=82593449)
+- [Genki Volume 1 (Learning Japanese Textbook + Workbook) ($37 + $20)](https://www.amazon.com/Genki-Vol-1-Textbook-3e-ed/dp/4789017303?tag=polygon05-20&ascsubtag=__pl0211awD__466750__________________)
+
 
 ## LEGO
 I've been a lifelong LEGO builder, and I have no plans on stopping anytime soon (especially now that I've got Daniel into them!). I of course appreciate the larger, more complex sets. Otherwise, I generally collect/love to build sets from the Harry Potter, Star Wars, Architecture/world wonders, and LEGO City collections. I do have a policy that I *don't build any Harry Potter sets until I can build them with Daniel (as part of a tradition/idea from Jane*. Here's a few on my wishlist:
@@ -120,6 +123,7 @@ I've been a lifelong LEGO builder, and I have no plans on stopping anytime soon 
 - Meal delivery services (used to really enjoy Blue Apron since I didn't have to plan what to shop/cook for the week)
 
 ### Other
+- [PiKVM V4 Plus ($385)](https://www.pishop.us/product/pikvm-v4-plus/)
 - [Satechi Stand Hub for Mac Studio ($100)](https://satechi.net/products/stand-hub-for-mac-mini-studio-with-nvme-ssd-enclosure)
 - [TwelveSouth Hoverbar Tower ($100)](https://www.twelvesouth.com/products/hoverbar-tower)
 - [TwelveSouth BackPack for Studio Display ($20))](https://www.twelvesouth.com/products/backpack)
@@ -144,4 +148,3 @@ I've been a lifelong LEGO builder, and I have no plans on stopping anytime soon 
 - [Into the Aether 1-year Patron Episodes subscription ($60)](https://www.patreon.com/intothecast/gift)
 - [Nanolith Game Organizer ($68)](https://woodpecker-games.myshopify.com/products/unbenannt-12-jan-_17-48?se_activity_id=189404676362&syclid=cucnvipdu44c73d538g0&utm_campaign=Alles+in+einer+Box+–+Der+neue+Nanolith-Inlay%2FOrganizer+ist+da%21_189404676362&utm_medium=email&utm_source=shopify_email&shpxid=493de6dd-b5fd-4d58-9faf-8dd95ff2e79d)
 - [NuPhy Halo75 V2 Keyboard (Black with Raspberry switches and a Walnut Rest) ($165)](https://nuphy.com/products/halo75-v2-qmk-via-wireless-custom-mechanical-keyboard?variant=41197389512813)
-- Rock Paper Pencil iPad Screen Protector
