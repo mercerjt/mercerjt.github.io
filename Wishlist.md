@@ -103,6 +103,7 @@ I've been a lifelong LEGO builder, and I have no plans on stopping anytime soon 
 - [The Legend of Zelda: Great Deku Tree (77092) ($300)](https://www.lego.com/en-us/product/great-deku-tree-2-in-1-77092)
 - [The Lord of the Rings: Barad-Dur (10333) ($460)](https://www.lego.com/en-us/product/the-lord-of-the-rings-barad-dur-10333)
 - [Ideas: International Space Station (21321) ($200)](https://www.amazon.com/dp/B083JWZNW7/?coliid=I3WEFE3MN0QER&colid=1557LK19HNV8Y&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
+- [Neuschwanstein Castle (21063) ($280)](https://www.lego.com/en-us/product/neuschwanstein-castle-21063)
 - [Typewriter (21327) ($250)](https://www.lego.com/en-us/product/typewriter-21327)
 - [Main Street (31141) ($140)](https://www.lego.com/en-us/product/main-street-31141)
 - [Cozy House (31139) ($60)](https://www.lego.com/en-us/product/cozy-house-31139)
