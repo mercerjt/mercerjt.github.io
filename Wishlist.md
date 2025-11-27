@@ -5,7 +5,7 @@ Some of these items I've eyed getting for myself when the time is right, the sal
 ## Top items
 1. [Donkey Kong Bananza Bundle for Nintendo Switch 2 ($90)](https://www.nintendo.com/us/store/products/donkey-kong-bananza-bundle-game-plus-dk-island-and-emerald-rush-dlc-switch-2/)
 2. [The Legend of Zelda: Echoes of Wisdom ($60)](https://www.nintendo.com/us/store/products/the-legend-of-zelda-echoes-of-wisdom-switch/?srsltid=AfmBOoqX6-NoKQNeSzpHTahIo96YVEPfdHxIOmr3tWnLOTdLMws7UeqL)
-3. Assassin's Creed Shadows (Digital Deluxe Edition) ($90)](https://www.playstation.com/en-us/games/assassins-creed-shadows/?et_rid=&et_cid=250116-ACSHADOW-GL-3RD-B-FLX&Linkid=250116-ACSHADOW-GL-3RD-B-FLX&emcid=em-3r-518643)
+3. [Assassin's Creed Shadows Digital Deluxe Edition ($90)](https://www.playstation.com/en-us/games/assassins-creed-shadows/?et_rid=&et_cid=250116-ACSHADOW-GL-3RD-B-FLX&Linkid=250116-ACSHADOW-GL-3RD-B-FLX&emcid=em-3r-518643)
 4. Any LEGO Creator (3-in-1) or City sets
 5. [TRMNL Display ($130)](https://shop.usetrmnl.com/products/trmnl?variant=48985878495537)
 
