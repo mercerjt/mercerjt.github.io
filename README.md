@@ -4,4 +4,4 @@ Hey! If you're seeing this, you're probably trying to get to one of the below pu
 
 [Daniel’s Wishlist](DanielWishlist.html)
 
-[Michael's Wishlist](MichaelWishlist.html)
+[Michael's Wishlist](michaelwishlist.html)
