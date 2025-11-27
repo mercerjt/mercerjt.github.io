@@ -3,3 +3,5 @@ Hey! If you're seeing this, you're probably trying to get to one of the below pu
 [My Wishlist](Wishlist.html)
 
 [Daniel’s Wishlist](DanielWishlist.html)
+
+[Michael's Wishlist](MichaelWishlist.html)
