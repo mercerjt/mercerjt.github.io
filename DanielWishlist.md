@@ -4,10 +4,9 @@ These are things that we've had our eye on and save for our own reference of "th
 ## Top Ideas:
 1. [Lego 4-8 year old sets](https://www.lego.com/en-us/categories/age-6-plus-years)
 2. Kids size 6 clothing for winter, or 7 for spring/summer
-3. [Superspace Panels](https://www.getsuperspace.com/products/the-big-set)
-4. KiwiCo sets like [Santa's Railroad Advent Calendar ($50)](https://www.kiwico.com/us/store/dp/santas-railroad-advent-calendar-project-kit/5558)
-5. [Magna-Tiles](https://magnatiles.com/?srsltid=AfmBOopyJs7vEHNzl1oNMAvMFb7WrHUUAxXI0ahfDKe5kYUWRYnq1kwY)
-6. [Contributions to his 529 (with code 53S-31U)](https://www.ugift529.com)
+3. KiwiCo sets like [Santa's Railroad Advent Calendar ($50)](https://www.kiwico.com/us/store/dp/santas-railroad-advent-calendar-project-kit/5558)
+4. [Magna-Tiles](https://magnatiles.com/?srsltid=AfmBOopyJs7vEHNzl1oNMAvMFb7WrHUUAxXI0ahfDKe5kYUWRYnq1kwY)
+5. [Contributions to his 529 (with code 53S-31U)](https://www.ugift529.com)
 
 ## LEGO Duplo & Ages 4
 Daniel LOVES playing with his LEGO sets right now, and he's getting into playing with the "real" 4+ yr old LEGOs. His favorites are his LEGO train & fire station sets and anything with vehicles. Here's some we know he doesn't own:
