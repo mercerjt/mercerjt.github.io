@@ -8,6 +8,7 @@ Some of these items I've eyed getting for myself when the time is right, the sal
 3. [Assassin's Creed Shadows Digital Deluxe Edition ($90)](https://www.playstation.com/en-us/games/assassins-creed-shadows/?et_rid=&et_cid=250116-ACSHADOW-GL-3RD-B-FLX&Linkid=250116-ACSHADOW-GL-3RD-B-FLX&emcid=em-3r-518643)
 4. Any LEGO Creator (3-in-1) or City sets
 5. [TRMNL Display ($130)](https://shop.usetrmnl.com/products/trmnl?variant=48985878495537)
+6. [Rather Not Social Club Sweater from Kin Ship Goods](https://kinshipgoods.com/collections/sweatshirts/products/rather-not-social-club-pullover-hoodie?variant=52697045041427)
 
 ## Board Games
 This is my latest & greatest & most expensive hobby. Harry Potter: Hogwarts Battle (a cooperative, deck-building game) got me really into this kind of hobby in 2021. Now, I'm huge into any kind of highly-rated board game, **especially co-operative games** since those are ones I can get Jane (and maybe you) to play too! Here's some I don't have that I've got my eye on:
@@ -42,6 +43,7 @@ This is my latest & greatest & most expensive hobby. Harry Potter: Hogwarts Batt
 	- [Aeon's End ($41)](https://laserox.net/products/aeons-end-organizer)
 	- [Transon Storage Tubes x8 ($29 for 2)](https://www.amazon.com/dp/B091JZ7B1S?th=1)
 	- [Nanolith Game Organizer ($68)](https://woodpecker-games.myshopify.com/products/unbenannt-12-jan-_17-48?se_activity_id=189404676362&syclid=cucnvipdu44c73d538g0&utm_campaign=Alles+in+einer+Box+–+Der+neue+Nanolith-Inlay%2FOrganizer+ist+da%21_189404676362&utm_medium=email&utm_source=shopify_email&shpxid=493de6dd-b5fd-4d58-9faf-8dd95ff2e79d)
+	- [Gloomhaven 2nd Edition Laserox Organizer ($157)](https://laserox.net/products/gloomhaven-second-edition-organizer?utm_source=hirlevel&utm_medium=organic&utm_campaign=hl_lgb2_cold&mc_cid=e296987d5b)
 
 
 ## Video Games

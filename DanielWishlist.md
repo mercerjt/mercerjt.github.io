@@ -37,6 +37,4 @@ We're currently buying for toddler size 6/7 stuff for Winter 2025/Spring 2026
 
 ## Other Things
 Daniel also loves his BRIO wooden train tracks and sets to continue extending his alternate play area. He also loves little-kid-friendly arts & crafts sets and doing science experiments with his dad.
-- [Superspace Panels](https://www.getsuperspace.com/products/the-big-set)
-- [Air Toobz ($150)](https://www.fatbraintoys.com/toy_companies/fat_brain_toy_co/air_toobz.cfm)
 - [Lovevery Real Life Play Kitchen ($300)](https://lovevery.com/products/the-real-life-play-kitchen?variant=40948356743301)
