@@ -12,6 +12,7 @@ Some of these items I've eyed getting for myself when the time is right, the sal
 
 ## Board Games
 This is my latest & greatest & most expensive hobby. Harry Potter: Hogwarts Battle (a cooperative, deck-building game) got me really into this kind of hobby in 2021. Now, I'm huge into any kind of highly-rated board game, **especially co-operative games** since those are ones I can get Jane (and maybe you) to play too! Here's some I don't have that I've got my eye on:
+- [Bomb Busters ($42)](https://www.amazon.com/Pegasus-Spiele-Bomb-Busters-Board/dp/B0DF4K8KS3)
 - [Box One ($35)](https://store.theory11.com/products/boxone)
 - [Too Many Bones ($145)](https://chiptheorygames.com/store/?store-page=Too-Many-Bones-p80199360)
 - [The Mind ($15)](https://www.amazon.com/Pandasaurus-Games-201809PAN-Mind-Card/dp/B07C4F3KLF?th=1)
@@ -44,6 +45,7 @@ This is my latest & greatest & most expensive hobby. Harry Potter: Hogwarts Batt
 	- [Transon Storage Tubes x8 ($29 for 2)](https://www.amazon.com/dp/B091JZ7B1S?th=1)
 	- [Nanolith Game Organizer ($68)](https://woodpecker-games.myshopify.com/products/unbenannt-12-jan-_17-48?se_activity_id=189404676362&syclid=cucnvipdu44c73d538g0&utm_campaign=Alles+in+einer+Box+–+Der+neue+Nanolith-Inlay%2FOrganizer+ist+da%21_189404676362&utm_medium=email&utm_source=shopify_email&shpxid=493de6dd-b5fd-4d58-9faf-8dd95ff2e79d)
 	- [Gloomhaven 2nd Edition Laserox Organizer ($157)](https://laserox.net/products/gloomhaven-second-edition-organizer?utm_source=hirlevel&utm_medium=organic&utm_campaign=hl_lgb2_cold&mc_cid=e296987d5b)
+	- [Everdell Game Base Mat + 6 Pc Set ($135)](https://www.etsy.com/listing/1827467076/everdell-game-mat-unofficial-upgrade?ref=shop_home_active_12&pro=1&sts=1&logging_key=d2476038551bf127ab96659a02abb12fc4494512%3A1827467076&variation0=5526826166&variation1=4971210563)
 
 
 ## Video Games
@@ -103,24 +105,26 @@ I've been a lifelong LEGO builder, and I have no plans on stopping anytime soon 
 - [Harry Potter: Hogwarts Moment: Charms Class (76385)](https://www.amazon.com/dp/B08HVZVWZT/?coliid=I1IV40K3NMF4YV&colid=1557LK19HNV8Y&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [Harry Potter: The Burrow Collector's Edition (76437) ($260)](https://www.lego.com/en-us/product/the-burrow-collectors-edition-76437)
 - [Harry Potter: The Great Hall (76435) ($200)](https://www.lego.com/en-us/product/hogwarts-castle-the-great-hall-76435)
+- [Harry Potter: Diagon Alley Wizarding Shops (76444) ($200)](https://www.lego.com/en-us/product/diagon-alley-wizarding-shops-76444)
+- [Harry Potter: Hogsmeade Village Collector's Edition (76457) ($400)](https://www.lego.com/en-us/product/hogsmeade-village-collectors-edition-76457)
+- [Harry Potter: Gringotts Wizarding Bank Collector's Edition (76417) ($430)](https://www.lego.com/en-us/product/gringotts-wizarding-bank-collectors-edition-76417)
 - [The Legend of Zelda: Great Deku Tree (77092) ($300)](https://www.lego.com/en-us/product/great-deku-tree-2-in-1-77092)
 - [The Lord of the Rings: Barad-Dur (10333) ($460)](https://www.lego.com/en-us/product/the-lord-of-the-rings-barad-dur-10333)
 - [The Lord of the Rings: Rivendell ($500)](https://www.lego.com/en-us/product/the-lord-of-the-rings-rivendell-10316)
+- [The Lord of the Rings: The Shire (10354) ($270)](https://www.lego.com/en-us/product/the-lord-of-the-rings-the-shire-10354)
 - [Ideas: International Space Station (21321) ($200)](https://www.amazon.com/dp/B083JWZNW7/?coliid=I3WEFE3MN0QER&colid=1557LK19HNV8Y&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [Neuschwanstein Castle (21063) ($280)](https://www.lego.com/en-us/product/neuschwanstein-castle-21063)
+- [Notre-Dame de Paris (21061) ($230)](https://www.lego.com/en-us/product/notre-dame-de-paris-21061)
+- [Great Pyramid of Giza (21058) ($130)](https://www.lego.com/en-us/product/great-pyramid-of-giza-21058)
+- [Trevi Fountain (21062) ($160)](https://www.lego.com/en-us/product/trevi-fountain-21062)
 - [Typewriter (21327) ($250)](https://www.lego.com/en-us/product/typewriter-21327)
 - [Main Street (31141) ($140)](https://www.lego.com/en-us/product/main-street-31141)
 - [Cozy House (31139) ($60)](https://www.lego.com/en-us/product/cozy-house-31139)
-- [Death Star (75419) ($1000)](https://www.lego.com/en-us/product/death-star-75419)
+- [Alpine Lodge ($100)](https://www.lego.com/en-us/product/alpine-lodge-10325)
+- [Family Christmas Tree ($330)](https://www.lego.com/en-us/product/family-christmas-tree-41843)
 - [Holiday Express Train (10361) ($130)](https://www.lego.com/en-us/product/holiday-express-train-10361)
-- [Great Pyramid of Giza (21058) ($130)](https://www.lego.com/en-us/product/great-pyramid-of-giza-21058)
-- [Trevi Fountain (21062) ($160)](https://www.lego.com/en-us/product/trevi-fountain-21062)
-- [The Lord of the Rings: The Shire (10354) ($270)](https://www.lego.com/en-us/product/the-lord-of-the-rings-the-shire-10354)
-- [Harry Potter: Diagon Alley Wizarding Shops (76444) ($200)](https://www.lego.com/en-us/product/diagon-alley-wizarding-shops-76444)
-- [Harry Potter: Hogsmeade Village Collector's Edition (76457) ($400)](https://www.lego.com/en-us/product/hogsmeade-village-collectors-edition-76457)
 - [One Piece: The Baratie Floating Restaurant (75640) ($330)](https://www.lego.com/en-us/product/the-baratie-floating-restaurant-75640)
-- [Notre-Dame de Paris (21061) ($230)](https://www.lego.com/en-us/product/notre-dame-de-paris-21061)
-- [Harry Potter: Gringotts Wizarding Bank Collector's Edition (76417) ($430)](https://www.lego.com/en-us/product/gringotts-wizarding-bank-collectors-edition-76417)
+- [Death Star (75419) ($1000)](https://www.lego.com/en-us/product/death-star-75419)
 - [Star Wars: Venator-Class Republic Attack Cruiser (75367) ($650)](https://www.lego.com/en-us/product/venator-class-republic-attack-cruiser-75367)
 - Any LEGO Creator (3-in-1) or City sets
 - Any world wonders/famous buildings sets
@@ -139,6 +143,9 @@ I've been a lifelong LEGO builder, and I have no plans on stopping anytime soon 
 - Meal delivery services (used to really enjoy HelloFresh/Blue Apron since I didn't have to plan what to shop/cook for the week)
 
 ### Other
+- [NYT Puzzle Mania Books ($7)](https://store.nytimes.com/products/puzzle-mania-nov-2025?variant=43845603622982)
+- [Crunchlabs Hack Pack subscription](https://www.crunchlabs.com/products/hack-pack-subscription?product-handle=hack-pack-subscription-pay-annually)
+- [Curiosity Box subscription ($75)](https://www.curiositybox.com)
 - [PiKVM V4 Plus ($385)](https://www.pishop.us/product/pikvm-v4-plus/)
 - [Satechi Stand Hub for Mac Studio ($100)](https://satechi.net/products/stand-hub-for-mac-mini-studio-with-nvme-ssd-enclosure)
 - [TwelveSouth Hoverbar Tower ($100)](https://www.twelvesouth.com/products/hoverbar-tower)

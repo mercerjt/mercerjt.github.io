@@ -5,8 +5,7 @@ These are things that we've had our eye on and save for our own reference of "th
 1. [Lego 4-8 year old sets](https://www.lego.com/en-us/categories/age-6-plus-years)
 2. Kids size 6 clothing for winter, or 7 for spring/summer
 3. KiwiCo sets like [Santa's Railroad Advent Calendar ($50)](https://www.kiwico.com/us/store/dp/santas-railroad-advent-calendar-project-kit/5558)
-4. [Magna-Tiles](https://magnatiles.com/?srsltid=AfmBOopyJs7vEHNzl1oNMAvMFb7WrHUUAxXI0ahfDKe5kYUWRYnq1kwY)
-5. [Contributions to his 529 (with code 53S-31U)](https://www.ugift529.com)
+4. [Contributions to his 529 (with code 53S-31U)](https://www.ugift529.com)
 
 ## LEGO Duplo & Ages 4
 Daniel LOVES playing with his LEGO sets right now, and he's getting into playing with the "real" 4+ yr old LEGOs. His favorites are his LEGO train & fire station sets and anything with vehicles. Here's some we know he doesn't own:
@@ -37,3 +36,4 @@ We're currently buying for toddler size 6/7 stuff for Winter 2025/Spring 2026
 ## Other Things
 Daniel also loves his BRIO wooden train tracks and sets to continue extending his alternate play area. He also loves little-kid-friendly arts & crafts sets and doing science experiments with his dad.
 - [Lovevery Real Life Play Kitchen ($300)](https://lovevery.com/products/the-real-life-play-kitchen?variant=40948356743301)
+- [GraviTrax Starter Set ($62)](https://www.amazon.com/dp/B0BSXKTRYZ?ref=emc_s_m_5_i_atc&th=1)
