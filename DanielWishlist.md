@@ -2,10 +2,10 @@
 These are things that we've had our eye on and save for our own reference of "that's something that would add/complement something Daniel already has", so it makes sense to share with others that may ask us "what kind of presents does Daniel want?"
 
 ## Top Ideas:
-1. [Lego 4-8 year old sets](https://www.lego.com/en-us/categories/age-6-plus-years)
-2. Tonies
-3. Kids size 6 clothing for winter, or 7 for spring/summer
-4. KiwiCo sets like [Santa's Railroad Advent Calendar ($50)](https://www.kiwico.com/us/store/dp/santas-railroad-advent-calendar-project-kit/5558)
+1. [Lego 4-8 year old sets](https://www.lego.com/en-us/categories/age-6-plus-years) or see other ideas in that section below!
+2. [NEX Playground ($250)](https://www.nexplayground.com)
+3. Tonies or an upgraded [Toniebox 2 (Red, Teal, or Sky Blue) ($120)](https://us.tonies.com/products/toniebox2-tropical-teal?variant=46077410738327)
+4. [More panels of any kind for his Superspace building sets]((https://www.getsuperspace.com/products/square-add-on-pack))
 5. [Contributions to his 529 (with code 53S-31U)](https://www.ugift529.com/gifttpl/ugift/create/viewGiftCodeDetails.cs?ugiftcode=53S-31U)
 
 ## LEGO Ages 4-8 year old sets
@@ -49,6 +49,7 @@ We're currently buying for toddler size 6 & 7 for Spring/Summer 2026.
 
 ## Other Things
 Daniel also loves to continue extending his alternate play area of Superspace panels or kinetic toys. He also loves little-kid-friendly arts & crafts sets and doing science experiments with his dad.
+- [NEX Playground ($250)](https://www.nexplayground.com)
 - [Lovevery Real Life Play Kitchen ($300)](https://lovevery.com/products/the-real-life-play-kitchen?variant=40948356743301)
 - [GraviTrax Starter Set ($62)](https://www.amazon.com/dp/B0BSXKTRYZ?ref=emc_s_m_5_i_atc&th=1)
 - [Superspace Panels Rectangles Add-on Pack ($235)](https://www.getsuperspace.com/products/the-rectangles-add-on-pack)

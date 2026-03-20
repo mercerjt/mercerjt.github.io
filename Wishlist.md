@@ -9,6 +9,7 @@ Some of these items I've eyed getting for myself when the time is right, the sal
 
 ## Board Games
 This is my latest & greatest & most expensive hobby. Harry Potter: Hogwarts Battle (a cooperative, deck-building game) got me really into this kind of hobby in 2021. Now, I'm huge into any kind of highly-rated board game, **especially co-operative games** since those are ones I can get Jane (and maybe you) to play too! Here's some I don't have that I've got my eye on:
+- [The Lord of the Rings: Fate of the Fellowship ($80)](https://store.asmodee.com/products/the-lord-of-the-rings-fate-of-the-fellowship)
 - [Bomb Busters ($42)](https://www.amazon.com/Pegasus-Spiele-Bomb-Busters-Board/dp/B0DF4K8KS3)
 - [Box One ($35)](https://store.theory11.com/products/boxone)
 - [Too Many Bones ($145)](https://chiptheorygames.com/store/?store-page=Too-Many-Bones-p80199360)
