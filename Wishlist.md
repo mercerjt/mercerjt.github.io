@@ -3,9 +3,11 @@ I used to use my Amazon wishlist as my universal spot for all things. Unfortunat
 Some of these items I've eyed getting for myself when the time is right, the sale is on, the winds in the east, mist coming in, etc. and others I think "That's nice and I kinda want it but wouldn't be willing to buy it right now".
 
 ## Top items
-1. [Donkey Kong Bananza Bundle for Nintendo Switch 2 ($90)](https://www.nintendo.com/us/store/products/donkey-kong-bananza-bundle-game-plus-dk-island-and-emerald-rush-dlc-switch-2/)
-2. [The Legend of Zelda: Echoes of Wisdom ($60)](https://www.nintendo.com/us/store/products/the-legend-of-zelda-echoes-of-wisdom-switch/?srsltid=AfmBOoqX6-NoKQNeSzpHTahIo96YVEPfdHxIOmr3tWnLOTdLMws7UeqL)
-3. [Assassin's Creed Shadows Digital Deluxe Edition ($90)](https://www.playstation.com/en-us/games/assassins-creed-shadows/?et_rid=&et_cid=250116-ACSHADOW-GL-3RD-B-FLX&Linkid=250116-ACSHADOW-GL-3RD-B-FLX&emcid=em-3r-518643)
+1. [Pokemon Pokopia with Expansion Pass ($105)](https://www.nintendo.com/us/store/products/pokemon-pokopia-bundle-game-plus-expansion-pass-switch-2/)
+2. [Donkey Kong Bananza Bundle for Nintendo Switch 2 ($90)](https://www.nintendo.com/us/store/products/donkey-kong-bananza-bundle-game-plus-dk-island-and-emerald-rush-dlc-switch-2/)
+3. [AstroBot (Digital Deluxe Edition) ($70)](https://www.playstation.com/en-us/games/astro-bot/)	
+4. [The Legend of Zelda: Echoes of Wisdom ($60)](https://www.nintendo.com/us/store/products/the-legend-of-zelda-echoes-of-wisdom-switch/?srsltid=AfmBOoqX6-NoKQNeSzpHTahIo96YVEPfdHxIOmr3tWnLOTdLMws7UeqL)
+5. [Super Mario Galaxy + Galaxy 2 for Nintendo Switch 2 ($70)](https://www.nintendo.com/us/store/products/super-mario-galaxy-plus-super-mario-galaxy-2-switch/)
 
 ## Board Games
 This is my latest & greatest & most expensive hobby. Harry Potter: Hogwarts Battle (a cooperative, deck-building game) got me really into this kind of hobby in 2021. Now, I'm huge into any kind of highly-rated board game, **especially co-operative games** since those are ones I can get Jane (and maybe you) to play too! Here's some I don't have that I've got my eye on:
@@ -48,18 +50,26 @@ This is my latest & greatest & most expensive hobby. Harry Potter: Hogwarts Batt
 ## Video Games
 Video games have been my go-to destresser/relaxation tool since I was introduced to Pokémon Red and the Game Boy Pocket in 1998. Today, I still keep up with a few specific series (including Pokémon, Assassin's Creed, the Legend of Zelda, and others), but I also generally enjoy two main genres:  online co-operative games and single player open-world RPG games. I definitely prefer to own a **digital** rather than physical copy of a game Here's some things in the video game & related accessories I've got my eye on:
 - Nintendo eShop gift cards in order to get:
+	- [Pokemon Pokopia with Expansion Pass ($105)](https://www.nintendo.com/us/store/products/pokemon-pokopia-bundle-game-plus-expansion-pass-switch-2/)
 	- [Donkey Kong Bananza Bundle for Nintendo Switch 2 ($90)](https://www.nintendo.com/us/store/products/donkey-kong-bananza-bundle-game-plus-dk-island-and-emerald-rush-dlc-switch-2/)
 	- [Super Mario Galaxy + Galaxy 2 for Nintendo Switch 2 ($70)](https://www.nintendo.com/us/store/products/super-mario-galaxy-plus-super-mario-galaxy-2-switch/)
+	- [Fire Emblem Engage + Expansion ($90)](https://www.nintendo.com/us/store/products/fire-emblem-engage-bundle-game-plus-expansion-pass-switch/)
+	- [Hyrule Warriors: Age of Imprisonment ($70)](https://www.nintendo.com/us/store/products/hyrule-warriors-age-of-imprisonment-switch-2/)
     - [The Legend of Zelda: Echoes of Wisdom ($60)](https://www.nintendo.com/us/store/products/the-legend-of-zelda-echoes-of-wisdom-switch/?srsltid=AfmBOoqX6-NoKQNeSzpHTahIo96YVEPfdHxIOmr3tWnLOTdLMws7UeqL)
     - [The Legend of Zelda: Skyward Sword HD ($60)](https://www.nintendo.com/us/store/products/the-legend-of-zelda-skyward-sword-hd-switch/)
+    - [Fire Emblem Fortune's Weave ($70)](https://www.nintendo.com/us/store/products/fire-emblem-fortunes-weave-switch-2/)
+    - [Yoshi and the Mysterious Book ($60)](https://www.nintendo.com/us/store/products/yoshi-and-the-mysterious-book-switch-2/)
+    - [Super Mario Bros. Wonder + Expansion ($80)](https://www.nintendo.com/us/store/products/super-mario-bros-wonder-nintendo-switch-2-edition-plus-meetup-in-bellabel-park-switch-2/)
+    - [Pokemon LeafGreen ($20)](https://www.nintendo.com/us/store/products/english-pokemon-leafgreen-version-switch/)
+    - [Pokemon FireRed ($20)](https://www.nintendo.com/us/store/products/english-pokemon-firered-version-switch/)
+	- [The Adventures of Elliot: The Millenium Tales Deluxe Edition ($70)](https://www.nintendo.com/us/store/products/the-adventures-of-elliot-the-millennium-tales-digital-deluxe-edition-switch-2/)
     - [Kirby Star Allies ($60)](https://www.nintendo.com/us/store/products/kirby-star-allies-switch/)
-    - [Triangle Strategy ($60)](https://www.nintendo.com/us/store/products/triangle-strategy-switch/)
     - [Mythwrecked ($25)](https://www.nintendo.com/us/store/products/mythwrecked-ambrosia-island-switch/?srsltid=AfmBOopE-SJopXUorGbBzN1c--HyXUCtu_lXw6N5OkIYYQG7BMr9CvgR)
     - [Unicorn Overlord ($60)](https://go.skimresources.com/?id=1025X1701642&xs=1&url=https%3A%2F%2Fwww.nintendo.com%2Fus%2Fstore%2Fproducts%2Funicorn-overlord-switch%2F%3Fsrsltid%3DAfmBOorHCQ3B1QAW48TdH5Ma1aZWpJshNaYFB5yUozrETT6iVVI91wwG&xcust=__pl1214awD__23842297__________________)
     - [Dragon Quest III HD-2D Remake ($60)](https://www.nintendo.com/us/store/products/dragon-quest-iii-hd-2d-remake-switch/?utm_source=etailers&utm_medium=internal_sqex)
 - Playstion Store gift cards in order to get:
 	- [AstroBot (Digital Deluxe Edition) ($70)](https://www.playstation.com/en-us/games/astro-bot/)
-    - [Assassin's Creed Shadows (Digital Deluxe Edition) ($90)](https://www.playstation.com/en-us/games/assassins-creed-shadows/?et_rid=&et_cid=250116-ACSHADOW-GL-3RD-B-FLX&Linkid=250116-ACSHADOW-GL-3RD-B-FLX&emcid=em-3r-518643)
+	- [Assassin's Creed Black Flag Resynced ($70)](https://www.playstation.com/en-us/games/assassins-creed-black-flag-resynced/?et_rid=&et_cid=260430-PRJOBSD-GL-3RD-B-FLX&Linkid=260430-PRJOBSD-GL-3RD-B-FLX&emcid=em-3r-533947)
     - [Like a Dragon: Infinite Wealth DLC ($66)](https://store.playstation.com/en-us/product/UP0177-PPSA06435_00-ULTIMATEEDITION0/)
     - [Marvel's Spider-Man 2 Digital Deluxe Edition ($80)](https://www.playstation.com/en-us/games/marvels-spider-man-2/)
     - [Immortals Fenyx Rising Gold Edition PS4 & PS5 ($60)](https://www.playstation.com/en-us/games/immortals-fenyx-rising/)
@@ -69,23 +79,7 @@ Video games have been my go-to destresser/relaxation tool since I was introduced
     - [Lorelei and the Laser Eyes ($25)](https://store.playstation.com/en-us/concept/10011409/)
     - [Metaphor: ReFantazio ($70)](https://store.playstation.com/en-us/product/UP0177-PPSA25425_00-METAPHORNATRIAL1)
     - [Final Fantasy XVI Complete Edition ($70)](https://store.playstation.com/en-us/product/UP0082-PPSA10664_00-SEIA0000000000CE)
-- Apple gift cards to get:
-	- [Everdell iPad app ($10)](https://apps.apple.com/us/app/everdell/id1580626436)
-	- [Logger App ($10)](https://apps.apple.com/us/app/logger-for-shortcuts/id1611554653)
-	- [Orion HDMI Monitor ($5)](https://apps.apple.com/us/app/hdmi-monitor-orion/id6459355072)
-	- [Wingspan and expansions ($32)](https://apps.apple.com/us/app/wingspan-the-board-game/id1459520638?ign-itscg=10200&ign-itsct=MGYML_SC01_PT022_WW)
-	- [Unsqueeze ($10)](https://apps.apple.com/us/app/unsqueeze/id6475134617)
-	- [Simple Scan ($20)](https://apps.apple.com/us/app/id6477965455)
-	- [Gentler Streak annual subscription ($33)](https://apps.apple.com/us/app/gentler-streak-health-tracker/id1576857102?utm_source=viticci&utm_medium=email&utm_campaign=monthly-log-april-2024)
-- [Steam gift cards to get:](https://store.steampowered.com/digitalgiftcards/)
-	- [Hades II ($30)](https://store.steampowered.com/app/1145350/Hades_II/)
-	- [The Rise of the Golden Idol ($20)](https://store.steampowered.com/app/2716400/The_Rise_of_the_Golden_Idol/)
-	- [Arco ($20)](https://store.steampowered.com/app/2366970/Arco/)
-	- [Dragon Age: Veilguard ($60)](https://store.steampowered.com/app/1845910/Dragon_Age_The_Veilguard/)
-	- [Lil' Guardsman ($20)](https://store.steampowered.com/app/1924360/Lil_Guardsman/)
 - [PlayStation 5 DualSense Edge Wireless Controller ($200)](https://www.amazon.com/dp/B0BSYFB99D/?coliid=I2TSHNT5GZLKPS&colid=1557LK19HNV8Y&ref_=list_c_wl_lv_ov_lig_dp_it&th=1)
-- [Backbone One for iPhone USB-C ($100)](https://backbone.com/products/backbone-one-usb-c/)
-- [Elgato 4K S Capture Card ($160)](https://www.elgato.com/us/en/p/game-capture-4k-s?utm_source=482924&utm_medium=Affiliate&utm_campaign=2029077_Elgato.com&utm_content=Elgato&clickid=WNLVYjQYNxyKU7N2YPyM4Q5OUkp0Iq21uRZoQM0&irgwc=1)
 
 ## Books
 I always appreciate any new books that you personally recommend or enjoy. Otherwise, I usually find myself reading fiction in the sci-fi or fantasy genres - and usually ones that are part of a series rather than one-offs. I try to make an effort to add new Hugo/Nebula award winner books to my "To Read" list as well. In the non-fiction space, I prefer reading current affairs and policy advocacy or solution-advocacy books (e.g. delving into a public policy problem, the data behind different parts of the problems or attempted solutions, and what solutions the author advocates for & why).
@@ -102,9 +96,7 @@ I've been a lifelong LEGO builder, and I have no plans on stopping anytime soon 
 - [Harry Potter: The Burrow Collector's Edition (76437) ($260)](https://www.lego.com/en-us/product/the-burrow-collectors-edition-76437)
 - [Harry Potter: The Great Hall (76435) ($200)](https://www.lego.com/en-us/product/hogwarts-castle-the-great-hall-76435)
 - [Harry Potter: Diagon Alley Wizarding Shops (76444) ($200)](https://www.lego.com/en-us/product/diagon-alley-wizarding-shops-76444)
-- [Harry Potter: Hogsmeade Village Collector's Edition (76457) ($400)](https://www.lego.com/en-us/product/hogsmeade-village-collectors-edition-76457)
 - [Harry Potter: Gringotts Wizarding Bank Collector's Edition (76417) ($430)](https://www.lego.com/en-us/product/gringotts-wizarding-bank-collectors-edition-76417)
-- [Harry Potter: Sorceror's Stone Collector's Edition (76466) ($170)](https://www.lego.com/en-us/product/sorcerers-stone-collectors-edition-76466)
 - [Harry Potter: Hogwarts Castle: Hospital Wing (76463) ($100)](https://www.lego.com/en-us/product/hogwarts-castle-hospital-wing-76463)
 - [The Legend of Zelda: Great Deku Tree (77092) ($300)](https://www.lego.com/en-us/product/great-deku-tree-2-in-1-77092)
 - [The Lord of the Rings: Barad-Dur (10333) ($460)](https://www.lego.com/en-us/product/the-lord-of-the-rings-barad-dur-10333)
@@ -135,6 +127,7 @@ I've been a lifelong LEGO builder, and I have no plans on stopping anytime soon 
 - Bonobos
 - Mack Weldon
 - Amazon
+- Apple
 - Kin Ship Goods
 
 ### Food & Drink
@@ -168,3 +161,4 @@ I've been a lifelong LEGO builder, and I have no plans on stopping anytime soon 
 - [NuPhy Halo75 V2 Keyboard (Black with Raspberry switches and a Walnut Rest) ($165)](https://nuphy.com/products/halo75-v2-qmk-via-wireless-custom-mechanical-keyboard?variant=41197389512813)
 - [Razer Pro Click v2 Vertical Mouse ($120)](https://www.razer.com/gaming-mice/razer-pro-click-v2-vertical-edition/RZ01-05250100-R3U1?irclickid=2czXOyTs7xyKTmPW3DTjLQ8KUkpRUrQRuRZoQM0&irgwc=1&afsrc=1&utm_source=Vox%20Media&utm_medium=affiliate&utm_content=482924&utm_term=Vox%20Media&utm_sharedid=&cid=Vox%20Media-affiliate)
 - [Razer Deathstalker v2 Pro Keyboard ($250)](https://www.razer.com/gaming-keyboards/razer-deathstalker-v2-pro/RZ03-04360200-R3U1)
+- [Steam Controller ($100)](https://store.steampowered.com/hardware/steamcontroller)

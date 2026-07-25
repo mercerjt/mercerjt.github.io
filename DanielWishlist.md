@@ -2,9 +2,7 @@
 These are things that we've had our eye on and save for our own reference of "that's something that would add/complement something Daniel already has", so it makes sense to share with others that may ask us "what kind of presents does Daniel want?"
 
 ## Top Ideas:
-1. [Lego 4-8 year old sets](https://www.lego.com/en-us/categories/age-6-plus-years) or see other ideas in that section below!
-2. [NEX Playground ($250)](https://www.nexplayground.com)
-3. Tonies or an upgraded [Toniebox 2 (Red, Teal, or Sky Blue) ($120)](https://us.tonies.com/products/toniebox2-tropical-teal?variant=46077410738327)
+1. [Lego 4-8 year old sets, especially "Build Together" ones](https://www.lego.com/en-us/categories/age-6-plus-years) or see other ideas in that section below!
 4. [More panels of any kind for his Superspace building sets]((https://www.getsuperspace.com/products/square-add-on-pack))
 5. [Contributions to his 529 (with code 53S-31U)](https://www.ugift529.com/gifttpl/ugift/create/viewGiftCodeDetails.cs?ugiftcode=53S-31U)
 
@@ -20,15 +18,12 @@ Daniel LOVES playing with his LEGO sets right now, and he's getting into playing
 ## Tonies
 Daniel has taken a new shine to his toniesbox due to discovering that his favorite Paw Patrol pups are on there + some of his other favorite characters! Here's some tonies we know he'd love:
 - [Paw Patrol: Rocky ($20)](https://us.tonies.com/products/paw-patrol-rocky-tonie?variant=42922100326551)
-- [Paw Patrol: Liberty ($20)](https://us.tonies.com/products/paw-patrol-liberty-tonie?variant=43212752879767)
-- [Paw Patrol: Skye ($20)](https://us.tonies.com/products/paw-patrol-skye-tonie?variant=41047263477911)
 - [Sesame Street: Cookie Monster ($20)](https://us.tonies.com/products/sesame-street-cookie-monster-tonie?variant=40765328490647)
 - [Spidey and His Amazing Friends: Spidey ($20)](https://us.tonies.com/products/marvel-spidey-his-amazing-friends-spidey-tonie?variant=43315610550423)
-- [Toniebox 2 (Red, Teal, Sky Blue) ($120)](https://us.tonies.com/products/toniebox2-tropical-teal?variant=46077410738327)
-	- [Toniebox 2 Sleeve: Paw Patrol ($16)](https://us.tonies.com/products/toniebox2-sleeve-paw-patrol?variant=46077412147351)
-	- [Toniebox 2 Sleeve: Space ($13)](https://us.tonies.com/products/toniebox2-sleeve-space?variant=46077411623063)
-	- [Tonieplay Paw Patrol Game & Controller ($40)](https://us.tonies.com/products/tonieplay-paw-patrol-adventure-bay-rescue-heroes-game-controller?variant=46186447241367)
-	- [Animal World Clever Tonies ($25)](https://us.tonies.com/products/clever-tonies-set-animals-of-africa?variant=45610833969303)
+- [Bluey Listen & Go Tonies Carrying Case ($30)](https://us.tonies.com/products/bluey-listen-and-go-carrying-case?_su_rec=sDmtytQuEvWY1jEOFEkjQTQqYAE5tDJqm26Y6dI1guujcAm2VWlT6WkofzEpx_IgakqwquOssJLUWGq4D_qDtKSD43QzDc4lLpP6WJJN5wcReQHJ3VfIbPK-u8GbK0Su6rxKYuSOFhcogRcFCQ3unxAkk6lvZEpDp0yJXOsvPIFhrpsn9cj--DTvBkIja9_WGt8Rf53-qKtNKBYmO7tB3iRmTTaqozmriQ87cQdy_R_wua7BII6WvAwR3A&_su_rec_id=10ed6327-bf60-49be-947c-3550a7fcc304-1781893857&variant=47850956718231)
+- [Bluey Tonieplay ($25)](https://us.tonies.com/products/tonieplay-bluey-game?variant=47836767977623)
+- [Bluey Tonies 3-pack ($60)](https://us.tonies.com/products/bluey-tonies-3pack?variant=47850956816535)
+- [Toniebox 2 Sleeve: Space ($13)](https://us.tonies.com/products/toniebox2-sleeve-space?variant=46077411623063)
 
 ## Books
 Daniel loves to read and loves to read to us. Currently, anything to do with construction vehicles, Paw Patrol, or Bluey are his favorites.
@@ -38,7 +33,7 @@ Daniel loves to read and loves to read to us. Currently, anything to do with con
 Daniel phases in & out of puzzles at the moment. Keep them age-appropriate in terms of size though! (Under 200 pieces please!) He has really loved puzzles that connect with things he likes (e.g. Pokémon, Bluey, etc.)
 
 ## Clothes
-We're currently buying for toddler size 6 & 7 for Spring/Summer 2026.
+We're currently buying for toddler size 6 & 7 for Fall/Winter 2026.
 
 ## KiwiCo sets
 - [Wind Play Lab ($50)](https://www.kiwico.com/us/store/dp/wind-play-lab/5991)
@@ -49,8 +44,8 @@ We're currently buying for toddler size 6 & 7 for Spring/Summer 2026.
 
 ## Other Things
 Daniel also loves to continue extending his alternate play area of Superspace panels or kinetic toys. He also loves little-kid-friendly arts & crafts sets and doing science experiments with his dad.
-- [NEX Playground ($250)](https://www.nexplayground.com)
 - [Lovevery Real Life Play Kitchen ($300)](https://lovevery.com/products/the-real-life-play-kitchen?variant=40948356743301)
 - [GraviTrax Starter Set ($62)](https://www.amazon.com/dp/B0BSXKTRYZ?ref=emc_s_m_5_i_atc&th=1)
 - [Superspace Panels Rectangles Add-on Pack ($235)](https://www.getsuperspace.com/products/the-rectangles-add-on-pack)
 - [Superspace Panels Square Add-on Pack ($130)](https://www.getsuperspace.com/products/square-add-on-pack)
+- [Tin Can ($100)](https://tincan.kids/products/tin-can)
