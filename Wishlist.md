@@ -3,11 +3,8 @@ I used to use my Amazon wishlist as my universal spot for all things. Unfortunat
 Some of these items I've eyed getting for myself when the time is right, the sale is on, the winds in the east, mist coming in, etc. and others I think "That's nice and I kinda want it but wouldn't be willing to buy it right now".
 
 ## Top items
-1. [Pokemon Pokopia with Expansion Pass ($105)](https://www.nintendo.com/us/store/products/pokemon-pokopia-bundle-game-plus-expansion-pass-switch-2/)
-2. [Donkey Kong Bananza Bundle for Nintendo Switch 2 ($90)](https://www.nintendo.com/us/store/products/donkey-kong-bananza-bundle-game-plus-dk-island-and-emerald-rush-dlc-switch-2/)
-3. [AstroBot (Digital Deluxe Edition) ($70)](https://www.playstation.com/en-us/games/astro-bot/)	
-4. [The Legend of Zelda: Echoes of Wisdom ($60)](https://www.nintendo.com/us/store/products/the-legend-of-zelda-echoes-of-wisdom-switch/?srsltid=AfmBOoqX6-NoKQNeSzpHTahIo96YVEPfdHxIOmr3tWnLOTdLMws7UeqL)
-5. [Super Mario Galaxy + Galaxy 2 for Nintendo Switch 2 ($70)](https://www.nintendo.com/us/store/products/super-mario-galaxy-plus-super-mario-galaxy-2-switch/)
+1. [AstroBot (Digital Deluxe Edition) ($70)](https://www.playstation.com/en-us/games/astro-bot/)
+2. [Pokemon Iconic Trainer Moments Poke Ball (72154) ($300)](https://www.lego.com/en-us/product/iconic-trainer-moments-poke-ball-72154)
 
 ## Board Games
 This is my latest & greatest & most expensive hobby. Harry Potter: Hogwarts Battle (a cooperative, deck-building game) got me really into this kind of hobby in 2021. Now, I'm huge into any kind of highly-rated board game, **especially co-operative games** since those are ones I can get Jane (and maybe you) to play too! Here's some I don't have that I've got my eye on:
@@ -50,14 +47,8 @@ This is my latest & greatest & most expensive hobby. Harry Potter: Hogwarts Batt
 ## Video Games
 Video games have been my go-to destresser/relaxation tool since I was introduced to Pokémon Red and the Game Boy Pocket in 1998. Today, I still keep up with a few specific series (including Pokémon, Assassin's Creed, the Legend of Zelda, and others), but I also generally enjoy two main genres:  online co-operative games and single player open-world RPG games. I definitely prefer to own a **digital** rather than physical copy of a game Here's some things in the video game & related accessories I've got my eye on:
 - Nintendo eShop gift cards in order to get:
-	- [Pokemon Pokopia with Expansion Pass ($105)](https://www.nintendo.com/us/store/products/pokemon-pokopia-bundle-game-plus-expansion-pass-switch-2/)
-	- [Donkey Kong Bananza Bundle for Nintendo Switch 2 ($90)](https://www.nintendo.com/us/store/products/donkey-kong-bananza-bundle-game-plus-dk-island-and-emerald-rush-dlc-switch-2/)
-	- [Super Mario Galaxy + Galaxy 2 for Nintendo Switch 2 ($70)](https://www.nintendo.com/us/store/products/super-mario-galaxy-plus-super-mario-galaxy-2-switch/)
-	- [Fire Emblem Engage + Expansion ($90)](https://www.nintendo.com/us/store/products/fire-emblem-engage-bundle-game-plus-expansion-pass-switch/)
 	- [Hyrule Warriors: Age of Imprisonment ($70)](https://www.nintendo.com/us/store/products/hyrule-warriors-age-of-imprisonment-switch-2/)
-    - [The Legend of Zelda: Echoes of Wisdom ($60)](https://www.nintendo.com/us/store/products/the-legend-of-zelda-echoes-of-wisdom-switch/?srsltid=AfmBOoqX6-NoKQNeSzpHTahIo96YVEPfdHxIOmr3tWnLOTdLMws7UeqL)
     - [The Legend of Zelda: Skyward Sword HD ($60)](https://www.nintendo.com/us/store/products/the-legend-of-zelda-skyward-sword-hd-switch/)
-    - [Fire Emblem Fortune's Weave ($70)](https://www.nintendo.com/us/store/products/fire-emblem-fortunes-weave-switch-2/)
     - [Yoshi and the Mysterious Book ($60)](https://www.nintendo.com/us/store/products/yoshi-and-the-mysterious-book-switch-2/)
     - [Super Mario Bros. Wonder + Expansion ($80)](https://www.nintendo.com/us/store/products/super-mario-bros-wonder-nintendo-switch-2-edition-plus-meetup-in-bellabel-park-switch-2/)
     - [Pokemon LeafGreen ($20)](https://www.nintendo.com/us/store/products/english-pokemon-leafgreen-version-switch/)
@@ -90,25 +81,29 @@ I usually prefer a Kindle or EPUB book version of the book, but I don't mind the
 
 ## LEGO
 I've been a lifelong LEGO builder, and I have no plans on stopping anytime soon (especially now that I've got Daniel into them!). I of course appreciate the larger, more complex sets, so a gift card toward LEGO is always appreciated! Otherwise, I generally collect/love to build sets from the Harry Potter, Star Wars, Architecture/world wonders, and LEGO City collections. I do have a policy that I *don't build any Harry Potter sets until I can build them with Daniel (as part of a tradition/idea from Jane*. Here's a few on my wishlist:
-- [Harry Potter: Hogwarts Castle and Grounds (76419)](https://www.amazon.com/dp/B0BXQ6NRRN/?coliid=I3IGEE747O5LS4&colid=1557LK19HNV8Y&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
+- [Pokemon Iconic Trainer Moments Poke Ball (72154) ($300)](https://www.lego.com/en-us/product/iconic-trainer-moments-poke-ball-72154)
+- [Holiday House (11387) ($120)](https://www.lego.com/en-us/product/holiday-house-11387?CMP=AFC-AffiliateUS-aH1gnOErcGI-3627915-1606623-10)
+- [Harry Potter: Dumbledore's Office Book Nook (76478) ($130)](https://www.lego.com/en-us/product/book-nook-dumbledores-office-76478)
 - [Harry Potter: Hogwarts Moment Herbology Class (76384) ($83)](https://www.amazon.com/dp/B09Q19LYLY/?coliid=I3JJ726679XJM6&colid=1557LK19HNV8Y&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [Harry Potter: Hogwarts Moment: Charms Class (76385)](https://www.amazon.com/dp/B08HVZVWZT/?coliid=I1IV40K3NMF4YV&colid=1557LK19HNV8Y&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
-- [Harry Potter: The Burrow Collector's Edition (76437) ($260)](https://www.lego.com/en-us/product/the-burrow-collectors-edition-76437)
 - [Harry Potter: The Great Hall (76435) ($200)](https://www.lego.com/en-us/product/hogwarts-castle-the-great-hall-76435)
-- [Harry Potter: Diagon Alley Wizarding Shops (76444) ($200)](https://www.lego.com/en-us/product/diagon-alley-wizarding-shops-76444)
 - [Harry Potter: Gringotts Wizarding Bank Collector's Edition (76417) ($430)](https://www.lego.com/en-us/product/gringotts-wizarding-bank-collectors-edition-76417)
 - [Harry Potter: Hogwarts Castle: Hospital Wing (76463) ($100)](https://www.lego.com/en-us/product/hogwarts-castle-hospital-wing-76463)
+- [Harry Potter: Book Nook Dumbledore's Office (76478) ($130)](https://www.lego.com/en-us/product/book-nook-dumbledores-office-76478)
+- [Harry Potter: Knockturn Alley Wizarding Shops (76471) ($120)](https://www.lego.com/en-us/product/knockturn-alley-wizarding-shops-76471)
+- [Harry Potter: Sorceror's Stone Collector's Edition (76466) ($170)](https://www.lego.com/en-us/product/sorcerers-stone-collectors-edition-76466?CMP=AFC-AffiliateUS-je6NUbpObpQ-2454844-1964308-10)
 - [The Legend of Zelda: Great Deku Tree (77092) ($300)](https://www.lego.com/en-us/product/great-deku-tree-2-in-1-77092)
 - [The Lord of the Rings: Barad-Dur (10333) ($460)](https://www.lego.com/en-us/product/the-lord-of-the-rings-barad-dur-10333)
 - [The Lord of the Rings: Rivendell ($500)](https://www.lego.com/en-us/product/the-lord-of-the-rings-rivendell-10316)
 - [The Lord of the Rings: The Shire (10354) ($270)](https://www.lego.com/en-us/product/the-lord-of-the-rings-the-shire-10354)
-- [Ideas: International Space Station (21321) ($200)](https://www.amazon.com/dp/B083JWZNW7/?coliid=I3WEFE3MN0QER&colid=1557LK19HNV8Y&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
+- [The Lord of the Rings: Minas Tirith (11377) ($650)](https://www.lego.com/en-us/product/the-lord-of-the-rings-minas-tirith-11377?CMP=AFC-AffiliateUS-je6NUbpObpQ-2454844-1964308-10)
 - [Neuschwanstein Castle (21063) ($280)](https://www.lego.com/en-us/product/neuschwanstein-castle-21063)
 - [Notre-Dame de Paris (21061) ($230)](https://www.lego.com/en-us/product/notre-dame-de-paris-21061)
-- [Great Pyramid of Giza (21058) ($130)](https://www.lego.com/en-us/product/great-pyramid-of-giza-21058)
 - [Trevi Fountain (21062) ($160)](https://www.lego.com/en-us/product/trevi-fountain-21062)
 - [Paris - City of Love (21064) ($80)](https://www.lego.com/en-us/product/architecture-21064-21064)
 - [Japanese Cherry Blossom Landscape (31218) ($140)](https://www.lego.com/en-us/product/japanese-cherry-blossom-landscape-31218)
+- [Sagrada Familia (21065) ($800)](https://www.lego.com/en-us/product/sagrada-familia-21065)
+- [Tower Bridge (21067) ($350)](https://www.lego.com/en-us/product/tower-bridge-21067)
 - [Typewriter (21327) ($250)](https://www.lego.com/en-us/product/typewriter-21327)
 - [Shopping Street (11371) ($250)](https://www.lego.com/en-us/product/shopping-street-11371)
 - [Main Street (31141) ($140)](https://www.lego.com/en-us/product/main-street-31141)
